@@ -17,4 +17,5 @@ Here are some ideas to get you started:
 
 My name is Oluwagbemiga!
 I'm a Software Geek by Night, a music devotee in spare times and Holy Bible-Believer & lover in-between.
-![texture-treble-clef-dark-background-isolated-generative-ai](https://github.com/cometbid-project/cometbid-project/assets/20684020/dd0dc838-6c23-4ad7-b798-4ab30dfd08f4)
+![FB_IMG_1703570029864](https://github.com/cometbid-project/cometbid-project/assets/20684020/6c319b0e-a2fb-404e-b10a-05ac51928f32)
+
